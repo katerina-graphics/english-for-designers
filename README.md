@@ -1,3 +1,3 @@
 # english-for-designers
 
-1. [letterform and haiku](letter-form-haiku)
+1. [Letterform and haiku](letter-form-haiku)
