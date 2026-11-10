@@ -1,5 +1,7 @@
 # Letterform & Haiku
 
+![Letterform](letterform.HEIC)
+
 frc   
 fcsc   
 fdcds   
