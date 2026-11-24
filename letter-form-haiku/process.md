@@ -1,1 +1,1 @@
-
+I spotted this one while I was out running. Fallen maple leaves on the asphalt had already started to form a Z, so I stopped and added a few details to complete the shape, then photographed it in the afternoon sun. I didn't plan it. The letter was mostly already there, and I just finished it.
