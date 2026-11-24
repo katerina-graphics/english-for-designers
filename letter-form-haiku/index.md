@@ -2,8 +2,8 @@
 
 ![Letterform](letterform.HEIC)
 
-frc   
-fcsc   
-fdcds   
+Maple leaves zigzag
+across the sunlit asphalt
+the last letter falls
 
 See the process [process.md](process.md)
